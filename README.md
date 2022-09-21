@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @98staleys
+- 👋 Hi, I’m @98stanleys
 - 👀 I’m interested in ...Website designing
 - 🌱 I’m currently learning ...I.C.T
 - 💞️ I’m looking to collaborate on ...Website designer
